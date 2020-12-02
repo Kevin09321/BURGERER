@@ -1,0 +1,2 @@
+Place the uncooked pattys on a grill and cook for around 15 mins.
+Put 1 piece of bread on a plate and put the patty on the bread, place the cheese on the patty then place the last piece of bread on top then BOOM! cheese burger
